@@ -1,2 +1,2 @@
-# Jon Does Not rule All the time !
-# I am "going commando" today, everyone!
+# Jon Does rule All the time !
+
